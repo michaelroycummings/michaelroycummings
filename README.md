@@ -4,17 +4,13 @@
 
 :telescope: **Career Interests**
 
-With a passion for communication and relationship building, and a knack for STEM fields, I source and connect incredible minds. Currently, I do this on two fronts!
-- As Account Executive at AgilTech, I connected businesses to superior digital transformation and analytics solutions at unbeatable prices.
-- I am beyond proud to head global relations for Xori Inc., a company founded to improve education in vulnerable communities and around the world, who in 2026, will join Virgin Galactic 🚀 in taking the first Colombian astronaut, the youngest astronaut, and the only self-educated astronaut in history, to space.
+With a passion for entrepreneurship and a knack for STEM fields, I source and connect brilliant minds.
 
 <br>
 
  :man_dancing: **Outside of Work**
 
-I currently reside in Medellin, Colombia where you can find me exploring the city and connecting local businesses with local and foreign talent and solution seekers.
-
-In my free time I love to dance, hike, and meet new people. I’m currently demolishing :muscle: my childhood assumption of being bad at languages by self-learning Spanish in Medellin, Colombia.
+In my free time I love to dance, hike, and meet new people. I’m currently improving my Spanish and starting Portuguese!
 
 <br>
 
